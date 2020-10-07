@@ -1,1 +1,1 @@
-# stobulovich
+# stobulovich  Четкий
